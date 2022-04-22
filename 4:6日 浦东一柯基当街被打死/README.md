@@ -9,3 +9,4 @@
 
 而当晚7时许，这位柯基主人也在小区业主群里回应：“我是小狗主人，我们没有不要”，“家里没有狗粮了，抱出来是让居委照顾的，结果居委不管”，“我们想放外面做条流浪狗也行，不会饿死，有条命也好，没想到我们走了他们就给打死了。”
 
+原视频内含暴力镜头，已经过压缩处理，请依旧谨慎观看！ | The original video contains Violent content, and may be upsetting to some people.
