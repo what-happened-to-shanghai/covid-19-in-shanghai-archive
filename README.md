@@ -3,4 +3,4 @@
 
 所有文档的版权均属于文档原作者，如果提PR，请尽量标注原作者和文档来源。 Please try to label the original author when making a PR. All rights belong to the original author of the documents/records.
 
-谢谢！
+欢迎大家提交PR补充，谢谢！Any supporting materials by a PR is appreciated, thank you!
